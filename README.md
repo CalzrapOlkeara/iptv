@@ -1,6 +1,6 @@
-# <a href="https://taraftariptv.com/">iptv Satın Almak İçin Tıkla</a>
+# <a href="https://wa.me/message/CEIOHA3X27TZB1">iptv Satın Almak İçin Tıkla</a>
 
-<a href="https://taraftariptv.com/" title="iptv">
+<a href="https://wa.me/message/CEIOHA3X27TZB1" title="iptv">
     <img src="https://resmim.net/cdn/2025/01/29/DpE5sc.png" alt="iptv" style="max-width: 100%; border: 2px solid #ddd; border-radius: 10px;">
 </a>
 
